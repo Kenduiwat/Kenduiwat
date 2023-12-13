@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+# I have changed my username from Kenduiwa to VincentKiplangat
+
+<br/>
+click the link below to redirect to the correct page:
+
+### https://github.com/VincentKiplangat
