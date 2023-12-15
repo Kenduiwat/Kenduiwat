@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-# I have changed my username from Kenduiwa to VincentKiplangat
+# I have changed my username from Kenduiwat to VincentKiplangat
 
 <br/>
 click the link below to redirect to the correct page:
